@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alariicamargo
-- 👀 I’m  I’m a Taekwondo and Kickboxing athelete 
+- 👀 I’m a Taekwondo and Kickboxing athelete 
 - 📫 I live in Cascavel PR
 
 <!---
